@@ -1,1 +1,1 @@
-My first readme
+Jesus is king of kings
